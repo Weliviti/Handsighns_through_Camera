@@ -1,2 +1,2 @@
 # HealthyMe
-The greatest Health and Wealth
+The greatest Health is Wealth
